@@ -1,0 +1,1 @@
+# signifiya-registration-file
